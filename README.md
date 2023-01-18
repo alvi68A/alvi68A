@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @alvi68A
 - 👀 I’m interested in road cycling and economics
-- 🌱 I’m currently studying in Helsinki Normaal Lyseum
+- 🌱 I’m currently studying in Helsinki Normal Lyceum
 - 📫 How to reach me private message
 
 <!---
